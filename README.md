@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @nnabuike321
+- 👋 Hi, I’m Igwealo Jeremiah Nnabuike
 - 👀 I’m interested in SE
 - 🌱 I’m currently learning SE
 - 💞️ I’m looking to collaborate on ...
